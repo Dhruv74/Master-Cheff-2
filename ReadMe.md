@@ -1,0 +1,1 @@
+First we need to cut the vegetable then we need to take a container and just pour some oil in it then we need to put the cutted vegetable into the container and we need to add spices into it and just cook it for some time after some time we need to remove it from container and then it is ready for eating.
